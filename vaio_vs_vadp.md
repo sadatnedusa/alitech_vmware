@@ -154,3 +154,5 @@ Here's a clear breakdown comparing **VAIO vs VADP**, including:
 
 ---
 
+![image](https://github.com/user-attachments/assets/997c3b8f-bab5-427a-9cc6-173c2389abba)
+
